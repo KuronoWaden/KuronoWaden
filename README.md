@@ -1,4 +1,4 @@
--👋 Hi, I’m @KuronoWaden!
+- 👋 Hi, I’m @KuronoWaden!
 I’m thrilled to connect with you all! I love meeting new people and building meaningful relationships. 🌐
 
 - 👀 I’m interested in:
